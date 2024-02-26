@@ -1,3 +1,3 @@
-# Welcome to AxolotlSMP! :wave:
+# Welcome to OtterSMP! :wave:
 
 Coming Soon
